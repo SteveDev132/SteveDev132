@@ -8,4 +8,4 @@
 
 🇷🇺
 👋 Привет, я SteveDev132!
-✍ Мой Discord: SteveDev132 # 7117
+✍ Мой Discord: SteveDev132#7117
